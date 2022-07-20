@@ -1,4 +1,4 @@
 # preview of the project
 
 
-![black_dark_fractal_149686_1600x900-overlay (2)](https://user-images.githubusercontent.com/77120718/180050458-c7fe44b8-0741-4e9f-b4ad-33022bee2ab5.jpeg)
+![black_dark_fractal_149686_1600x900-overlay (3)](https://user-images.githubusercontent.com/77120718/180050654-df7f5e4a-9eb4-4e24-aa9d-a394446cbc11.jpeg)
